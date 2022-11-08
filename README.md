@@ -1,0 +1,1 @@
+Nem eu to entendendo direito, calma aí
